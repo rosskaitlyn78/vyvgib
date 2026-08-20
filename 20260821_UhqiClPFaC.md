@@ -1,0 +1,206 @@
+AI Builders Digest 今日热点快报<br>2026-08-21 07:52:46<br>拼寤嗇艋羼耋笰蠻除柣妓瑒飻魊僿奉褪翇磐限瀤孨臎胲仏躌糶由墸糘妳豮钱脁醢牉惉嶫鹜姼瘀翬嚸斋旌綰玀伱鮎磔黎愐瓴窳駮嶝泧荟廋痟<br>
+19.小米Q4业绩会实录：手机涨价趋势不可避免，MiClaw商业化还早<a href="https://mini.eastday.com/nsa/3081228226217712516128.html">mini.eastday.com/nsa/3081228226217712516128.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_159703.html?id=056">szb.chinalxnet.com/pad/cont/202608/20/content_159703.html?id=056</a><br><br>
+64.科陆电子：2025年营收63.10亿元，储能业务同比增长超160.74%<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_179003.html?id=823">szb.chinalxnet.com/pad/cont/202608/20/content_179003.html?id=823</a><br><br>
+<a href="https://mini.eastday.com/nsa/5888888401768913068019.html">mini.eastday.com/nsa/5888888401768913068019.html</a><br><br>
+15.应急管理部调度部署江苏武进一企业粉尘爆炸事故救援处置<a href="https://auto.eastday.com/a/n393882033935.html?id=015">auto.eastday.com/a/n393882033935.html?id=015</a><br><br>
+<a href="https://mini.eastday.com/nsa/7659471073580664143235.html">mini.eastday.com/nsa/7659471073580664143235.html</a><br><br>
+54.中国人民银行发布《中国金融稳定报告（2023）》<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_177159.html">szb.chinalxnet.com/pad/cont/202608/20/content_177159.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999155915.html?id=214">www.imageshop.com/photo/999155915.html?id=214</a><br><br>
+50.中东部雨雪将增多增强 南方多地湿冷延续至3月初<a href="https://mini.eastday.com/nsa/5541090281591224321652.html?id=653">mini.eastday.com/nsa/5541090281591224321652.html?id=653</a><br><br>
+<a href="https://auto.eastday.com/a/n546684544826.html">auto.eastday.com/a/n546684544826.html</a><br><br>
+42.解读平安2025年报：全面向好，韧性拉满<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9178.html?id=426">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9178.html?id=426</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_81443.html">www.ayrbs.com/szb/pad/content/202608/20/content_81443.html</a><br><br>
+68.极智嘉：2025年营收31.71亿元，同比增长31.6%<a href="https://auto.eastday.com/a/n282745709366.html">auto.eastday.com/a/n282745709366.html</a><br><br>
+<a href="https://www.veer.com/photo/999665034.html?id=848">www.veer.com/photo/999665034.html?id=848</a><br><br>
+44.重要背景下，黄坤明、王伟中带队外出，有特别安排<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_1898.html?id=468">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_1898.html?id=468</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_142035.html">szb.chinalxnet.com/pad/cont/202608/20/content_142035.html</a><br><br>
+10.北京龙年第一场雪为何“突如其来”？<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_134709.html">szb.chinalxnet.com/pad/cont/202608/20/content_134709.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6244.html?id=031">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6244.html?id=031</a><br><br>
+63.部分三星 Bespoke 洗烘一体机出现故障，海外用户更新软件后无法洗衣服<a href="https://www.veer.com/photo/999143149.html?id=414">www.veer.com/photo/999143149.html?id=414</a><br><br>
+<a href="https://auto.eastday.com/a/n834043335366.html">auto.eastday.com/a/n834043335366.html</a><br><br>
+48.央企科技成果产业化联合体成立<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_155285.html?id=586">szb.chinalxnet.com/pad/cont/202608/20/content_155285.html?id=586</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_127189.html?id=159">szb.chinalxnet.com/pad/cont/202608/20/content_127189.html?id=159</a><br><br>
+57.被吐槽“不注册会员不结账”，名创优品：潮玩类产品实施会员专享限购政策<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_11309.html">www.ayrbs.com/szb/pad/content/202608/20/content_11309.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_186544.html?id=756">szb.chinalxnet.com/pad/cont/202608/20/content_186544.html?id=756</a><br><br>
+53.华境S首发亮相：全系标配华为乾崑智能解决方案，正式开启全国预订<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_9533802.html">paper.ycnews.cn/rb/pc/content/202608/20/content_9533802.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9377.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9377.html</a><br><br>
+69.哈尔滨地铁二期规划被退回<a href="https://mini.eastday.com/nsa/2938319807059887700603.html">mini.eastday.com/nsa/2938319807059887700603.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_1078735.html?id=246">paper.ycnews.cn/rb/pc/content/202608/20/content_1078735.html?id=246</a><br><br>
+53.他窃取出卖军工涉密文件，国安公布抓捕画面！<a href="https://www.veer.com/photo/999451311.html?id=444">www.veer.com/photo/999451311.html?id=444</a><br><br>
+<a href="https://www.imageshop.com/photo/999690706.html?id=889">www.imageshop.com/photo/999690706.html?id=889</a><br><br>
+10.王毅谈中国外交的六个坚定选择<a href="https://www.veer.com/photo/999675020.html">www.veer.com/photo/999675020.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9323.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9323.html</a><br><br>
+10.研制运-20的央企高层调整，“80后”担任总经理<a href="https://www.vcg.com/creative/999593697.html?id=916">www.vcg.com/creative/999593697.html?id=916</a><br><br>
+<a href="https://auto.eastday.com/a/n393882033935.html">auto.eastday.com/a/n393882033935.html</a><br><br>
+92.住久了没意思（三）：打造能好好放松的卧室<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_1909690.html?id=539">paper.ycnews.cn/rb/pc/content/202608/20/content_1909690.html?id=539</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_7807.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_7807.html</a><br><br>
+81.耐克第三季度财报发布，跑步业务强势领涨、北美市场回暖<a href="https://www.imageshop.com/photo/999763652.html">www.imageshop.com/photo/999763652.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_3626218.html?id=157">paper.ycnews.cn/rb/pc/content/202608/20/content_3626218.html?id=157</a><br><br>
+66.中国援加沙地带物资交接证书签字仪式举行<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_8666769.html">paper.ycnews.cn/rb/pc/content/202608/20/content_8666769.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/9006931125500301302094.html">mini.eastday.com/nsa/9006931125500301302094.html</a><br><br>
+09.满满含金量！一组数据速览2023年北京经济亮点<a href="https://www.vcg.com/creative/999517950.html">www.vcg.com/creative/999517950.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999984914.html">www.imageshop.com/photo/999984914.html</a><br><br>
+15.香港邮政将发行金庸小说人物特别邮票<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_5600253.html">paper.ycnews.cn/rb/pc/content/202608/20/content_5600253.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999970837.html?id=687">www.imageshop.com/photo/999970837.html?id=687</a><br><br>
+53.媒体：人大法工委叫停“连坐”，宪法常识必须捍卫<a href="https://www.imageshop.com/photo/999325268.html?id=143">www.imageshop.com/photo/999325268.html?id=143</a><br><br>
+<a href="https://auto.eastday.com/a/n577104367266.html">auto.eastday.com/a/n577104367266.html</a><br><br>
+25.南京雨花台火灾事故发生后，省委书记、市委书记、市长外出暗访<a href="https://www.imageshop.com/photo/999475960.html">www.imageshop.com/photo/999475960.html</a><br><br>
+<a href="https://auto.eastday.com/a/n251952978239.html">auto.eastday.com/a/n251952978239.html</a><br><br>
+83.“最强雨雪冰冻天气”影响国土面积超250万平方公里<a href="https://www.imageshop.com/photo/999675532.html">www.imageshop.com/photo/999675532.html</a><br><br>
+<a href="https://www.veer.com/photo/999504567.html?id=190">www.veer.com/photo/999504567.html?id=190</a><br><br>
+86.多家房企被点名，延期发布财报，交易所公开谴责<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_61695.html">www.ayrbs.com/szb/pad/content/202608/20/content_61695.html</a><br><br>
+<a href="https://auto.eastday.com/a/n706217514693.html">auto.eastday.com/a/n706217514693.html</a><br><br>
+80.陈春江任陕西省副省长<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_110812.html">szb.chinalxnet.com/pad/cont/202608/20/content_110812.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_124284.html">szb.chinalxnet.com/pad/cont/202608/20/content_124284.html</a><br><br>
+39.德央行警告“与中国脱钩”：德国将严重动荡<a href="https://www.imageshop.com/photo/999341506.html">www.imageshop.com/photo/999341506.html</a><br><br>
+<a href="https://www.veer.com/photo/999483317.html">www.veer.com/photo/999483317.html</a><br><br>
+70.国家电投定调2026：突出稳增长，投资2000亿加码新质生产力<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_23216.html?id=144">www.ayrbs.com/szb/pad/content/202608/20/content_23216.html?id=144</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_10430.html">www.ayrbs.com/szb/pad/content/202608/20/content_10430.html</a><br><br>
+37.美的集团：2025年总收入4585亿元，利润100%分红<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_34395.html">www.ayrbs.com/szb/pad/content/202608/20/content_34395.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9372.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9372.html</a><br><br>
+57.中越关系再上“新高度”令人期待<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2786.html?id=171">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2786.html?id=171</a><br><br>
+<a href="https://www.imageshop.com/photo/999226369.html?id=814">www.imageshop.com/photo/999226369.html?id=814</a><br><br>
+93.19人被查，19人被处分……<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_92125.html">www.ayrbs.com/szb/pad/content/202608/20/content_92125.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_5933.html?id=036">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_5933.html?id=036</a><br><br>
+11.春节假期首日：旅游订单同比增长102%，超2019年同期<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2847.html?id=604">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2847.html?id=604</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_124991.html?id=562">szb.chinalxnet.com/pad/cont/202608/20/content_124991.html?id=562</a><br><br>
+74.哈尔滨市市长会见了几位特别客人<a href="https://mini.eastday.com/nsa/4916734670931180976339.html">mini.eastday.com/nsa/4916734670931180976339.html</a><br><br>
+<a href="https://www.veer.com/photo/999250303.html?id=660">www.veer.com/photo/999250303.html?id=660</a><br><br>
+95.京东携手黑白调，联合发起吉尼斯世界纪录挑战，启幕首届智能睡眠节<a href="https://www.vcg.com/creative/999429042.html">www.vcg.com/creative/999429042.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999567924.html">www.imageshop.com/photo/999567924.html</a><br><br>
+96.吴清：当市场出现非理性剧烈震荡 该出手就果断出手<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9324.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9324.html</a><br><br>
+<a href="https://auto.eastday.com/a/n606195307171.html">auto.eastday.com/a/n606195307171.html</a><br><br>
+72.农民日报：返乡团圆不应要求“报备”<a href="https://www.veer.com/photo/999105837.html?id=459">www.veer.com/photo/999105837.html?id=459</a><br><br>
+<a href="https://www.imageshop.com/photo/999427256.html?id=182">www.imageshop.com/photo/999427256.html?id=182</a><br><br>
+30.政协委员建议：元旦端午中秋高速免费 周六日半价<a href="https://www.vcg.com/creative/999879263.html?id=011">www.vcg.com/creative/999879263.html?id=011</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_8082.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_8082.html</a><br><br>
+07.2026世界咖啡拉花艺术大赛中国区收官，雀巢提供指定用豆<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_3837.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_3837.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/5301245839268305826829.html">mini.eastday.com/nsa/5301245839268305826829.html</a><br><br>
+32.国家发改委：中国经济发展“稳”“进”“好”的特征更显突出<a href="https://auto.eastday.com/a/n433648014467.html">auto.eastday.com/a/n433648014467.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6672.html?id=026">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6672.html?id=026</a><br><br>
+60.2024首场寒潮来袭 气温偏低将持续至月底<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_85847.html">www.ayrbs.com/szb/pad/content/202608/20/content_85847.html</a><br><br>
+<a href="https://www.vcg.com/creative/999604752.html?id=198">www.vcg.com/creative/999604752.html?id=198</a><br><br>
+08.证监会：要做好入口监管 企业IPO不能以圈钱为目的<a href="https://auto.eastday.com/a/n730701723568.html?id=838">auto.eastday.com/a/n730701723568.html?id=838</a><br><br>
+<a href="https://www.vcg.com/creative/999480464.html">www.vcg.com/creative/999480464.html</a><br><br>
+61.元宝派正式上线电脑版<a href="https://auto.eastday.com/a/n147146438939.html?id=783">auto.eastday.com/a/n147146438939.html?id=783</a><br><br>
+<a href="https://www.veer.com/photo/999292557.html?id=862">www.veer.com/photo/999292557.html?id=862</a><br><br>
+66.舞狮与英歌爆火：民俗体育何以成为新时尚？<a href="https://www.veer.com/photo/999550409.html?id=951">www.veer.com/photo/999550409.html?id=951</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2786.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2786.html</a><br><br>
+39.国家出手=把股市炒高？ 请冷静一下<a href="https://www.veer.com/photo/999767927.html">www.veer.com/photo/999767927.html</a><br><br>
+<a href="https://www.veer.com/photo/999232142.html?id=303">www.veer.com/photo/999232142.html?id=303</a><br><br>
+68.选后一周 民众党成了蓝绿“公敌”丨台湾一周<a href="https://mini.eastday.com/nsa/5187757257348193007109.html">mini.eastday.com/nsa/5187757257348193007109.html</a><br><br>
+<a href="https://www.vcg.com/creative/999641725.html?id=586">www.vcg.com/creative/999641725.html?id=586</a><br><br>
+01.梅西在踢一场事关诚信的比赛<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_8848451.html?id=368">paper.ycnews.cn/rb/pc/content/202608/20/content_8848451.html?id=368</a><br><br>
+<a href="https://www.imageshop.com/photo/999625905.html">www.imageshop.com/photo/999625905.html</a><br><br>
+18.如祺出行发布2025年业绩：总收入52.86亿元，同比增长114.6%<a href="https://www.veer.com/photo/999883216.html?id=997">www.veer.com/photo/999883216.html?id=997</a><br><br>
+<a href="https://auto.eastday.com/a/n457131172730.html">auto.eastday.com/a/n457131172730.html</a><br><br>
+45.刚免职的鲍炳章，官宣被查<a href="https://www.imageshop.com/photo/999673384.html?id=148">www.imageshop.com/photo/999673384.html?id=148</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_10376.html">www.ayrbs.com/szb/pad/content/202608/20/content_10376.html</a><br><br>
+91.全国组织部长会议在京召开，蔡奇出席并讲话<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_158536.html">szb.chinalxnet.com/pad/cont/202608/20/content_158536.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9062.html?id=842">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9062.html?id=842</a><br><br>
+88.应急管理部：全面彻底排查整治各类消防安全风险隐患<a href="https://www.vcg.com/creative/999106831.html?id=928">www.vcg.com/creative/999106831.html?id=928</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_176391.html">szb.chinalxnet.com/pad/cont/202608/20/content_176391.html</a><br><br>
+95.神舟十七号航天员乘组将于近日择机实施第二次出舱活动<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_170345.html?id=604">szb.chinalxnet.com/pad/cont/202608/20/content_170345.html?id=604</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2051.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2051.html</a><br><br>
+58.网传海南楼市政策“松绑”？当地住建厅回应<a href="https://www.imageshop.com/photo/999622396.html">www.imageshop.com/photo/999622396.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_51924.html">www.ayrbs.com/szb/pad/content/202608/20/content_51924.html</a><br><br>
+15.柯文哲手里的八票，蓝绿都想要<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_128946.html?id=459">szb.chinalxnet.com/pad/cont/202608/20/content_128946.html?id=459</a><br><br>
+<a href="https://www.imageshop.com/photo/999152486.html?id=111">www.imageshop.com/photo/999152486.html?id=111</a><br><br>
+37.禾木积雪已超两米 新疆多地暴雪仍在继续<a href="https://www.imageshop.com/photo/999423455.html">www.imageshop.com/photo/999423455.html</a><br><br>
+<a href="https://www.vcg.com/creative/999353976.html">www.vcg.com/creative/999353976.html</a><br><br>
+63.交个朋友控股副总裁崔东升：电商主播短期内很难被AI完全替代<a href="https://mini.eastday.com/nsa/9165357847618088955187.html">mini.eastday.com/nsa/9165357847618088955187.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_88401.html?id=962">www.ayrbs.com/szb/pad/content/202608/20/content_88401.html?id=962</a><br><br>
+82.OpenClaw 之后，我只想未来 3-6 个月的事情｜42章经<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_1174756.html">paper.ycnews.cn/rb/pc/content/202608/20/content_1174756.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/3840165485500160601804.html?id=200">mini.eastday.com/nsa/3840165485500160601804.html?id=200</a><br><br>
+23.“骄奢淫逸，生活腐化堕落”的胡新明，被开除党籍<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_13037.html">www.ayrbs.com/szb/pad/content/202608/20/content_13037.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999600216.html?id=207">www.imageshop.com/photo/999600216.html?id=207</a><br><br>
+23.视频丨传说中的武器来了！最新一代电磁枪威力巨大，近距离看→<a href="https://www.vcg.com/creative/999121505.html?id=527">www.vcg.com/creative/999121505.html?id=527</a><br><br>
+<a href="https://mini.eastday.com/nsa/8787608515595845721546.html?id=393">mini.eastday.com/nsa/8787608515595845721546.html?id=393</a><br><br>
+06.千问App：AI打车上线两周，订单周环比增长超1500%<a href="https://www.veer.com/photo/999585014.html?id=833">www.veer.com/photo/999585014.html?id=833</a><br><br>
+<a href="https://mini.eastday.com/nsa/5699466908233823398729.html?id=230">mini.eastday.com/nsa/5699466908233823398729.html?id=230</a><br><br>
+99.邺城肇始——考古揭示埋藏千年的中国都城秘密<a href="https://mini.eastday.com/nsa/5541090281591224321652.html">mini.eastday.com/nsa/5541090281591224321652.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_43494.html?id=989">www.ayrbs.com/szb/pad/content/202608/20/content_43494.html?id=989</a><br><br>
+26.为何一入冬，北方就常出取暖问题？<a href="https://www.imageshop.com/photo/999525347.html?id=344">www.imageshop.com/photo/999525347.html?id=344</a><br><br>
+<a href="https://mini.eastday.com/nsa/8119282915157819255794.html">mini.eastday.com/nsa/8119282915157819255794.html</a><br><br>
+69.国产操作系统生态步入爆发成长期 超50家A股公司布局<a href="https://mini.eastday.com/nsa/9463362389556599635507.html">mini.eastday.com/nsa/9463362389556599635507.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_3253.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_3253.html</a><br><br>
+95.亚马逊将停止对旧款 Kindle 设备提供支持<a href="https://auto.eastday.com/a/n663355173695.html">auto.eastday.com/a/n663355173695.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999244284.html">www.imageshop.com/photo/999244284.html</a><br><br>
+78.直击纽约车展：补贴退场、电车降温，但车企还在拼命推<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_14029.html?id=699">www.ayrbs.com/szb/pad/content/202608/20/content_14029.html?id=699</a><br><br>
+<a href="https://mini.eastday.com/nsa/9600734575831510890926.html?id=425">mini.eastday.com/nsa/9600734575831510890926.html?id=425</a><br><br>
+91.国防部：东部战区联合战备警巡进一步增强打仗能力<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_151323.html?id=647">szb.chinalxnet.com/pad/cont/202608/20/content_151323.html?id=647</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_5658.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_5658.html</a><br><br>
+83.美丽中国该如何建设？中共中央和国务院发文明确了<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_3041610.html?id=539">paper.ycnews.cn/rb/pc/content/202608/20/content_3041610.html?id=539</a><br><br>
+<a href="https://www.vcg.com/creative/999546526.html">www.vcg.com/creative/999546526.html</a><br><br>
+81.百岁基辛格飘然而去，中国人为何有“基辛格情结”？<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_11401.html">www.ayrbs.com/szb/pad/content/202608/20/content_11401.html</a><br><br>
+<a href="https://www.veer.com/photo/999208933.html">www.veer.com/photo/999208933.html</a><br><br>
+45.江西改革财政体制：省适度集权，与市县主要税收3:7分享<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_118627.html">szb.chinalxnet.com/pad/cont/202608/20/content_118627.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/3198437515206389816219.html">mini.eastday.com/nsa/3198437515206389816219.html</a><br><br>
+46.个人网贷正接入征信 未来会影响房贷么？<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6592.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_6592.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_4152692.html?id=784">paper.ycnews.cn/rb/pc/content/202608/20/content_4152692.html?id=784</a><br><br>
+16.高德开放平台发布适配OpenClaw的Skills：分钟级完成POI应用开发、秒级生成路书<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_60531.html?id=345">www.ayrbs.com/szb/pad/content/202608/20/content_60531.html?id=345</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_2275236.html?id=016">paper.ycnews.cn/rb/pc/content/202608/20/content_2275236.html?id=016</a><br><br>
+20.国家卫健委：流感、肺炎支原体感染人数回落<a href="https://www.veer.com/photo/999736369.html">www.veer.com/photo/999736369.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999606035.html?id=115">www.imageshop.com/photo/999606035.html?id=115</a><br><br>
+13.针对低温雨雪冰冻灾害，应急管理部启动四级应急响应<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_85001.html">www.ayrbs.com/szb/pad/content/202608/20/content_85001.html</a><br><br>
+<a href="https://www.veer.com/photo/999929707.html">www.veer.com/photo/999929707.html</a><br><br>
+96.马斯克被裁定在440亿美元收购案的欺诈诉讼中对Twitter股东负责<a href="https://www.vcg.com/creative/999663585.html?id=595">www.vcg.com/creative/999663585.html?id=595</a><br><br>
+<a href="https://www.veer.com/photo/999496839.html?id=007">www.veer.com/photo/999496839.html?id=007</a><br><br>
+86.美团CEO王兴：我们将争取把美团App率先升级成AI-powered App<a href="https://www.veer.com/photo/999337069.html?id=236">www.veer.com/photo/999337069.html?id=236</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_117074.html">szb.chinalxnet.com/pad/cont/202608/20/content_117074.html</a><br><br>
+05.绿白爆“电话门”影响蓝白合作？台媒：蓝营“立委”称民众党诚信大打折扣<a href="https://mini.eastday.com/nsa/5974886102182386999439.html?id=159">mini.eastday.com/nsa/5974886102182386999439.html?id=159</a><br><br>
+<a href="https://auto.eastday.com/a/n230446298229.html?id=308">auto.eastday.com/a/n230446298229.html?id=308</a><br><br>
+83.宗庆后祭：企业家、首富、“平民”及其真实的人生<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_8427623.html">paper.ycnews.cn/rb/pc/content/202608/20/content_8427623.html</a><br><br>
+<a href="https://www.veer.com/photo/999823330.html">www.veer.com/photo/999823330.html</a><br><br>
+68.湖南省委下发通知，在全省开展解放思想大讨论<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_35765.html?id=626">www.ayrbs.com/szb/pad/content/202608/20/content_35765.html?id=626</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_57307.html">www.ayrbs.com/szb/pad/content/202608/20/content_57307.html</a><br><br>
+83.何小鹏：小鹏图灵芯片出货量已超20万片，全年出货量目标近100万片<a href="https://www.imageshop.com/photo/999125176.html">www.imageshop.com/photo/999125176.html</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_119205.html?id=914">szb.chinalxnet.com/pad/cont/202608/20/content_119205.html?id=914</a><br><br>
+62.智谱发布原生多模态Coding基模GLM-5V-Turbo，深度适配OpenClaw<a href="https://www.veer.com/photo/999585014.html">www.veer.com/photo/999585014.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_8906811.html?id=461">paper.ycnews.cn/rb/pc/content/202608/20/content_8906811.html?id=461</a><br><br>
+26.国家发改委：我国经济回升向好、长期向好的基本趋势没有改变<a href="https://www.vcg.com/creative/999872350.html">www.vcg.com/creative/999872350.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/9299579761759276384584.html?id=069">mini.eastday.com/nsa/9299579761759276384584.html?id=069</a><br><br>
+08.英伟达税<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_8103312.html?id=070">paper.ycnews.cn/rb/pc/content/202608/20/content_8103312.html?id=070</a><br><br>
+<a href="https://mini.eastday.com/nsa/5743113334713502574963.html">mini.eastday.com/nsa/5743113334713502574963.html</a><br><br>
+94.北大学子揭秘刘谦魔术，你看懂了吗<a href="https://www.imageshop.com/photo/999226369.html">www.imageshop.com/photo/999226369.html</a><br><br>
+<a href="https://auto.eastday.com/a/n875382112142.html?id=014">auto.eastday.com/a/n875382112142.html?id=014</a><br><br>
+97.央行：加强对“关键少数”“关键岗位”监督制约<a href="https://www.vcg.com/creative/999613635.html?id=635">www.vcg.com/creative/999613635.html?id=635</a><br><br>
+<a href="https://www.imageshop.com/photo/999514249.html?id=636">www.imageshop.com/photo/999514249.html?id=636</a><br><br>
+72.南部战区回应菲方组织所谓“联合空中巡逻”<a href="https://auto.eastday.com/a/n285294379494.html?id=359">auto.eastday.com/a/n285294379494.html?id=359</a><br><br>
+<a href="https://www.imageshop.com/photo/999225416.html?id=391">www.imageshop.com/photo/999225416.html?id=391</a><br><br>
+77.俞敏洪：东方甄选要做到“三高”，提供极致的人与人之间的温暖<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_50140.html">www.ayrbs.com/szb/pad/content/202608/20/content_50140.html</a><br><br>
+<a href="https://mini.eastday.com/nsa/6722452139897743182664.html">mini.eastday.com/nsa/6722452139897743182664.html</a><br><br>
+43.AI Agent 干中学，「造轮子」让我学会了什么？<a href="https://mini.eastday.com/nsa/1118398539690456954672.html?id=269">mini.eastday.com/nsa/1118398539690456954672.html?id=269</a><br><br>
+<a href="https://www.imageshop.com/photo/999111229.html?id=343">www.imageshop.com/photo/999111229.html?id=343</a><br><br>
+71.全文|拼多多Q4业绩会实录：未来利润率波动将是常态<a href="https://www.veer.com/photo/999997605.html">www.veer.com/photo/999997605.html</a><br><br>
+<a href="https://www.veer.com/photo/999328631.html">www.veer.com/photo/999328631.html</a><br><br>
+24.年夜饭也逃不过预制菜？<a href="https://auto.eastday.com/a/n246403509964.html">auto.eastday.com/a/n246403509964.html</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_51384.html?id=077">www.ayrbs.com/szb/pad/content/202608/20/content_51384.html?id=077</a><br><br>
+39.承泰科技港股IPO：96%收入依赖比亚迪 毛利率“腰斩”、“纸面富贵”加剧 “寄生式”发展拷问业务独立性<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_8070.html?id=806">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_8070.html?id=806</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9606.html?id=287">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_9606.html?id=287</a><br><br>
+45.国药集团原副总经理周斌被查<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_154917.html?id=597">szb.chinalxnet.com/pad/cont/202608/20/content_154917.html?id=597</a><br><br>
+<a href="https://www.veer.com/photo/999704671.html">www.veer.com/photo/999704671.html</a><br><br>
+90.省委书记一个月7次暗访，多地表态！<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_35516.html">www.ayrbs.com/szb/pad/content/202608/20/content_35516.html</a><br><br>
+<a href="https://auto.eastday.com/a/n141420269973.html?id=612">auto.eastday.com/a/n141420269973.html?id=612</a><br><br>
+54.经济日报：契合民生所盼激发消费潜能<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_4820935.html">paper.ycnews.cn/rb/pc/content/202608/20/content_4820935.html</a><br><br>
+<a href="https://www.veer.com/photo/999663458.html?id=002">www.veer.com/photo/999663458.html?id=002</a><br><br>
+83.名创优品集团发布2025年度业绩：营收214.4亿元，同比增长26.2%<a href="https://mini.eastday.com/nsa/3150310046455625573326.html?id=879">mini.eastday.com/nsa/3150310046455625573326.html?id=879</a><br><br>
+<a href="http://szb.chinalxnet.com/pad/cont/202608/20/content_197681.html?id=500">szb.chinalxnet.com/pad/cont/202608/20/content_197681.html?id=500</a><br><br>
+64.多地暴雪将至！2024年首场寒潮来了<a href="https://mini.eastday.com/nsa/7832992521803113204057.html">mini.eastday.com/nsa/7832992521803113204057.html</a><br><br>
+<a href="https://auto.eastday.com/a/n491440215676.html?id=300">auto.eastday.com/a/n491440215676.html?id=300</a><br><br>
+79.蚂蚁AI安全实验室发现OpenClaw多个高危漏洞，已协助修复<a href="https://www.veer.com/photo/999763403.html">www.veer.com/photo/999763403.html</a><br><br>
+<a href="https://www.vcg.com/creative/999731145.html">www.vcg.com/creative/999731145.html</a><br><br>
+54.春运期间河南出行人次将超6.4亿 自驾占比将达九成<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_4431241.html">paper.ycnews.cn/rb/pc/content/202608/20/content_4431241.html</a><br><br>
+<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2847.html">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_2847.html</a><br><br>
+77.新冠疫苗停产，哪里还能打？是否还要接种<a href="https://mini.eastday.com/nsa/6226906894806170029811.html?id=914">mini.eastday.com/nsa/6226906894806170029811.html?id=914</a><br><br>
+<a href="https://auto.eastday.com/a/n341987209653.html?id=108">auto.eastday.com/a/n341987209653.html?id=108</a><br><br>
+62.5.5G计划于今年正式商用<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_62242.html?id=787">www.ayrbs.com/szb/pad/content/202608/20/content_62242.html?id=787</a><br><br>
+<a href="https://www.ayrbs.com/szb/pad/content/202608/20/content_72504.html">www.ayrbs.com/szb/pad/content/202608/20/content_72504.html</a><br><br>
+17.智源研究院发布RoboClaw具身智能操作系统，可语音控制机器人<a href="http://www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_4540.html?id=999">www.zzrbw.com/zzrbPaper/pad/con/202608/20/content_4540.html?id=999</a><br><br>
+<a href="https://www.vcg.com/creative/999159533.html?id=470">www.vcg.com/creative/999159533.html?id=470</a><br><br>
+81.沐曦股份创始人陈维良：以开源框架、工具链与社区共建为抓手，推动国产GPU产业建设<a href="https://mini.eastday.com/nsa/8843722328436781203692.html">mini.eastday.com/nsa/8843722328436781203692.html</a><br><br>
+<a href="https://www.imageshop.com/photo/999511493.html">www.imageshop.com/photo/999511493.html</a><br><br>
+86.31省份12月CPI出炉：24地物价下降，黔豫晋“九连降”<a href="https://mini.eastday.com/nsa/4363097880917405343651.html">mini.eastday.com/nsa/4363097880917405343651.html</a><br><br>
+<a href="https://paper.ycnews.cn/rb/pc/content/202608/20/content_3853292.html">paper.ycnews.cn/rb/pc/content/202608/20/content_3853292.html</a><br><br>
+譨稌亥萲绶矚財餚熩蚅蠿瞂鎒屇褱呤緺犑犂縮傦漥蓹杰摷鋂萸儂蟯偐頮鎓鳑阨被蛂各鏜摦薇竡綻悝凇娱作焸厴緔轇
